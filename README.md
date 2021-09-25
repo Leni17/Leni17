@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Leni17
+- 👀 I’m interested in computer science
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on future projects about coding
+- 📫 How to reach me this is my email selenipena05@gmail.com
